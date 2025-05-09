@@ -36,7 +36,7 @@
 ## 📫 Let's Connect
 
 - 📩 **Email:** [ml4life.abdullah@gmail.com](mailto:ml4life.abdullah@gmail.com)  
-- 🔗 **LinkedIn:** Coming Soon  
+- 🔗 **LinkedIn:**  www.linkedin.com/in/abdullahaxlam11
 - 🌍 **Portfolio Site:** Coming Soon  
 - 💬 I’m open to collabs, projects, and geeky AI convos
 
